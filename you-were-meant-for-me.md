@@ -174,52 +174,7 @@ in
 rolled up 
 
 
-SH 555-3 
 
-
-Lt 
-~ N a . 
-
-
-WN ill 
-
-
-ie : | =| | 
-
-
-2 ~ 
-saa - : 
-~~ 
-2} 
-I Se \) 
-FREI LL 3 
-i) =) = 
-3 i 
-: ERE} || 
-8 = Run 
-BEELU s il 
-b o tee! 
-aS 6 
-<< 
-= SG 
-eo S 
-l| a Fe - 
-ll - ~ 6 
-| Re sa : 
-i = ~ 
-a q 
-| a 3 ill 
-EERE + ; 
-a 
-AAS 
-WN 
-3 . 
-iS INS 
-re 
-o 
-teVe) 
-o | 
-FARE] |B > | 
 co} he = EERE 
 I Sd fa} 
 
